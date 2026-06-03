@@ -1,4 +1,4 @@
-# 
+# حصرية isolated-margin trading bot أدوات لـ Mac OS | آلي isolated-margin trading bot أدوات لـ PC Windows. مع أوامر وقف الخسارة و تداول الأزواج — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
